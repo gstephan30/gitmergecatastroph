@@ -1,3 +1,3 @@
 # rofl 
 
-![Thumbs Up](https://media.giphy.com/media/IdmfEtnMWPzOg/giphy.gif)
+![](https://media.giphy.com/media/y65VoOlimZaus/giphy.gif)
